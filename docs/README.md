@@ -31,11 +31,7 @@ We assist with managing your property’s finances to ensure everything runs smo
 ## Contact Us
 Ready to get started? Contact us today to learn more about how we can assist with your home and property management needs.
 
-- **Email:** [info@watsonpropertyservices.com](mailto:info@watsonpropertyservices.com)
-
-Follow us on social media:  
-- [Facebook](https://facebook.com/watsonpropertyservices)  
-- [LinkedIn](https://linkedin.com/company/watsonpropertyservices)
+- **Email:** [watson.property.services.llc@gmail.com](mailto:watson.property.services.llc@gmail.com)
 
 ---
 
